@@ -2,7 +2,7 @@
 
 **Github** [page](https://github.com/kamin2u)
 
-**E-mail:** kn.ramazanov@gmail.com
+**E-mail:** <kn.ramazanov@gmail.com>
 
 **Tel:** (+79775571408)
 
