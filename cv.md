@@ -4,7 +4,7 @@
 
 **E-mail:** <kn.ramazanov@gmail.com>
 
-
+**Skype:** [kam_in2u](https://join.skype.com/invite/JiCbHY9bd9mE)
 
 
 ---
