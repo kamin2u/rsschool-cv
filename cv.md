@@ -4,7 +4,7 @@
 
 **E-mail:** <kn.ramazanov@gmail.com>
 
-**Tel:** (+79775571408)
+
 
 
 ---
